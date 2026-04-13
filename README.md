@@ -1,4 +1,2 @@
-# LOS-HEREDEROS-DE-EPSTEIN
-LOL XD
-QUE QUE QUEUJWEUNASJBAFSAFBJHKASFBKASFHBJKASFASFFSAJLBF
-me da una embolia 
+# Chamoy_y_Queso
+estudio, esfuerzo y dedicacion 
